@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tiag0-gli
-- 👀 I’m interested in not this
-- 🌱 I’m currently learning computer scince
+- 👀 I’m interested in: not this
+- 🌱 I’m currently learning: computer scince
 - 💞️ I’m looking to collaborate on ur mom
 - 📫 How to reach me... impossible or just stalk lmao
 
